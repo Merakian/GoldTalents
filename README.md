@@ -1,1 +1,1 @@
-# goldtalents.com
+# Gold Talents Football Academy
